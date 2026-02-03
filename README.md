@@ -29,7 +29,7 @@ xᴛʀᴀ xᴛʀᴀ ʀᴇᴀᴅ ᴀʟʟ ᴀʙᴏᴜᴛ ɪᴛ . . .
 <details>
 <summary>♡ FRIENDS ♡</summary>
 <br>
-<a href="https://github.com/GONTlER" target="_blank">sunny</a>  <a href="https://github.com/GAMBLEGHOST" target="_blank">connie</a>  <a href="https://github.com/darlingness" target="_blank">fri</a>
+<a href="https://github.com/chevaIier" target="_blank">sunny</a>  <a href="https://github.com/GAMBLEGHOST" target="_blank">connie</a>  <a href="https://github.com/darlingness" target="_blank">fri</a>
 let me know if u want to be added / removed !! :D
 </details>
 
