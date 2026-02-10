@@ -3,7 +3,7 @@
 <p align="center">
 <img src="https://files.catbox.moe/hd759m.webp" alt="Gif"width="800" height="300">
 <p align="left">
-<a href="https://hits.sh/github.com/sweetberrie/hits/"><img alt="Hits" src="https://hits.sh/github.com/sweetberrie/hits.svg?label=LACED%20W%20GRACE&extraCount=1999&color=eb71a6&labelColor=3d9ef3"/></a>
+<a href="https://hits.sh/github.com/suprcutie/hits/"><img alt="Hits" src="https://hits.sh/github.com/suprcutie/hits.svg?label=LACED%20W%20GRACE&extraCount=4802&color=e375a5&labelColor=48a0ec"/></a>
 <p align="right">
 ˡ ᵒ ᵃ ᵈ ⁱ ⁿ ᵍ . . .
   
