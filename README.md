@@ -10,7 +10,7 @@
 ```
           ꒰ᩧ৯                     ◞ ྀི◟ ͜ ◞ ྀི◟ ͜ ◞ ྀི ⑅   " 𝐚 𝐝𝐞𝐥𝐢𝐜𝐚𝐭𝐞, 𝐥𝐨𝐯𝐞 𝐬𝐭𝐚𝐢𝐧𝐞𝐝 𝐬𝐨𝐮𝐥 . . . "  ృ                     𖹭 𑇓
                                     
-                            ◟𓈒ֺּׅ ꒰꛱ ͜ ꛱|꛱       ︵⏜ ୨ ྀི ᴄʏʀɪᴇ¹  𝐨𝐮  ᴄʏʀᴇɴᴇ² ᴄʜᴇᴏᴠʟʏ³ ‹𝟹  ྀི୧ ⏜︵ ྀི     ˚̣̣ ͜   ⑅♡⃘
+                            ◟𓈒ֺּׅ ꒰꛱ ͜ ꛱|꛱       ︵⏜ ୨ ྀི ᴄᴜᴘɪᴅ¹  𝐨𝐮  ᴄʏʀɪᴇ² ᴄʏʀᴇɴᴇ³ ‹𝟹  ྀི୧ ⏜︵ ྀི     ˚̣̣ ͜   ⑅♡⃘
                                           ꪆৎ   18 yrs   ⏖   𝟏.𝟐𝟒.𝟎𝟖 ⠀⨾   ns yume . . .  ࿐
                                           ꒰ྀི     ᴘʜᴀɪɴᴏɴ 。 sᴀɴᴊɪ  =͟͟͞ 。 ᴄᴀʟᴇʙ yume    ഒ໒꒱𓈒ׅ
 
@@ -23,13 +23,13 @@ xᴛʀᴀ xᴛʀᴀ ʀᴇᴀᴅ ᴀʟʟ ᴀʙᴏᴜᴛ ɪᴛ . . .
 <details>
 <summary>♡ LINKS ♡</summary>
 <br>
-<a href="https://rentry.co/elysiaeirl" target="_blank">rentry</a>  <a href="https://angelicdelusion.atabook.org/" target="_blank">atabook</a>  <a href="https://pronouns.cc/@cyreneirl" target="_blank">kins + info</a>
+<a href="https://rentry.co/cupidsadoration" target="_blank">rentry</a>  <a href="https://angelicdelusion.atabook.org/" target="_blank">atabook</a>  
 </details>
 
 <details>
 <summary>♡ FRIENDS ♡</summary>
 <br>
-<a href="https://github.com/chevaIier" target="_blank">sunny</a>  <a href="https://github.com/GAMBLEGHOST" target="_blank">connie</a>  <a href="https://github.com/darlingness" target="_blank">fri</a>
+<a href="https://github.com/GAMBLEGHOST" target="_blank">connie</a>  <a href="https://github.com/darlingness" target="_blank">fri</a>
 let me know if u want to be added / removed !! :D
 </details>
 
