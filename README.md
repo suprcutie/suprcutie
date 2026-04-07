@@ -43,4 +43,4 @@ let me know if u want to be added / removed !! :D
 
 
 <p align="center">
-<img src="https://files.catbox.moe/cqzyip.png" alt="Header"width="10000" height="500">
+<img src="https://files.catbox.moe/r170a2.png" alt="Header"width="10000" height="500">
