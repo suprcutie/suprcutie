@@ -1,9 +1,11 @@
 <p align="center">
-<img src="https://files.catbox.moe/wsvx7y.png" alt="Header"width="10000" height="500">
+<img src="https://files.catbox.moe/srygh4.png" alt="Header"width="10000" height="500">
 <p align="center">
-<img src="https://files.catbox.moe/hd759m.webp" alt="Gif"width="800" height="300">
+<img src="https://files.catbox.moe/yscmqv.webp" alt="Gif"width="800" height="300">
+<p align="center">
+<img src="https://files.catbox.moe/k6xhf7.webp" alt="Gif"width="700" height="300">
 <p align="left">
-<a href="https://hits.sh/github.com/suprcutie/hits/"><img alt="Hits" src="https://hits.sh/github.com/suprcutie/hits.svg?label=LACED%20W%20GRACE&extraCount=4802&color=e375a5&labelColor=48a0ec"/></a>
+<a href="https://hits.sh/github.com/suprcutie/hits/"><img alt="Hits" src="https://hits.sh/github.com/suprcutie/hits.svg?label=LACED%20W%20GRACE&extraCount=5399&color=fdb0b0&labelColor=8293f0"/></a>
 <p align="right">
 ˡ ᵒ ᵃ ᵈ ⁱ ⁿ ᵍ . . .
   
@@ -33,8 +35,11 @@ xᴛʀᴀ xᴛʀᴀ ʀᴇᴀᴅ ᴀʟʟ ᴀʙᴏᴜᴛ ɪᴛ . . .
 let me know if u want to be added / removed !! :D
 </details>
 
+<p align="center">
+<img src="https://files.catbox.moe/h9c8e0.webp" alt="Gif"width="700" height="300">
+
 <p align="right">
-<img src="https://files.catbox.moe/wuc8li.webp" alt="Image"width="600" height="400">
+<img src="https://files.catbox.moe/gv17a2.webp" alt="Image"width="600" height="400">
 
 
 <p align="center">
