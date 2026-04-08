@@ -1,11 +1,15 @@
 <p align="center">
-<img src="https://files.catbox.moe/srygh4.png" alt="Header"width="10000" height="500">
+<img src="https://files.catbox.moe/o1o2va.png" alt="Header"width="10000" height="500">
+<align="left">
+<img src="https://files.catbox.moe/ew7a4c.png" alt="Gif"width="150" height="150">
+<align="center">
+<img src="https://files.catbox.moe/ak82xl.png" alt="Gif"width="300" height="300">
+<align="right">
+<img src="https://files.catbox.moe/qci9fa.png" alt="Gif"width="150" height="150">
 <p align="center">
-<img src="https://files.catbox.moe/yscmqv.webp" alt="Gif"width="800" height="300">
-<p align="center">
-<img src="https://files.catbox.moe/k6xhf7.webp" alt="Gif"width="700" height="300">
+<img src="https://files.catbox.moe/khyhqf.jpg" alt="Gif"width="700" height="300">
 <p align="left">
-<a href="https://hits.sh/github.com/suprcutie/hits/"><img alt="Hits" src="https://hits.sh/github.com/suprcutie/hits.svg?label=LACED%20W%20GRACE&extraCount=5399&color=fdb0b0&labelColor=8293f0"/></a>
+<a href="https://hits.sh/github.com/suprcutie/hits/"><img alt="Hits" src="https://hits.sh/github.com/suprcutie/hits.svg?label=fairy%20wings&extraCount=6049&color=fbb5d1&labelColor=d97c87"/></a>
 <p align="right">
 ˡ ᵒ ᵃ ᵈ ⁱ ⁿ ᵍ . . .
   
@@ -15,6 +19,7 @@
                             ◟𓈒ֺּׅ ꒰꛱ ͜ ꛱|꛱       ︵⏜ ୨ ྀི ᴄᴜᴘɪᴅ¹  𝐨𝐮  ᴄʏʀɪᴇ² ᴄʏʀᴇɴᴇ³ ‹𝟹  ྀི୧ ⏜︵ ྀི     ˚̣̣ ͜   ⑅♡⃘
                                           ꪆৎ   18 yrs   ⏖   𝟏.𝟐𝟒.𝟎𝟖 ⠀⨾   ns yume . . .  ࿐
                                           ꒰ྀི     ᴘʜᴀɪɴᴏɴ 。 sᴀɴᴊɪ  =͟͟͞ 。 ᴄᴀʟᴇʙ yume    ഒ໒꒱𓈒ׅ
+                                             layout credits to @abudasima on tumblr !!
 
           ꒰ᩧ৯                         ༏ིྀ♡ ໋꒱꒱⠀.  .   " 𝐅𝐢𝐧𝐜𝐡é 𝐜'è 𝐯𝐢𝐭𝐚 𝐜'è 𝐬𝐩𝐞𝐫𝐚𝐧𝐳𝐚 "     ◟ ͜͝ ᐩ                        𖹭 𑇓
 ```
@@ -36,11 +41,11 @@ let me know if u want to be added / removed !! :D
 </details>
 
 <p align="center">
-<img src="https://files.catbox.moe/h9c8e0.webp" alt="Gif"width="700" height="300">
+<img src="https://files.catbox.moe/khyhqf.jpg" alt="Gif"width="700" height="300">
 
 <p align="right">
-<img src="https://files.catbox.moe/gv17a2.webp" alt="Image"width="600" height="400">
+<img src="https://files.catbox.moe/07ruwm.jpg" alt="Image"width="600" height="400">
 
 
 <p align="center">
-<img src="https://files.catbox.moe/r170a2.png" alt="Header"width="10000" height="500">
+<img src="https://files.catbox.moe/o1o2va.png" alt="Header"width="10000" height="500">
