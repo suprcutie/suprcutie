@@ -1,25 +1,20 @@
 <p align="center">
-<img src="https://files.catbox.moe/o1o2va.png" alt="Header"width="10000" height="500">
-<align="left">
-<img src="https://files.catbox.moe/ew7a4c.png" alt="Gif"width="150" height="150">
-<align="center">
-<img src="https://files.catbox.moe/ak82xl.png" alt="Gif"width="300" height="300">
-<align="right">
-<img src="https://files.catbox.moe/qci9fa.png" alt="Gif"width="150" height="150">
+<img src="https://litter.catbox.moe/z3gj55rl8hhnytdn.png" alt="Header"width="10000" height="500">
 <p align="center">
-<img src="https://files.catbox.moe/khyhqf.jpg" alt="Gif"width="700" height="300">
+<img src="https://litter.catbox.moe/urj1cu6n865b58hd.gif" alt="Gif"width="500" height="400">
+<p align="center">
+<img src="https://litter.catbox.moe/jsprd7ejyyz1d9bp.png" alt="Gif"width="900" height="300">
 <p align="left">
-<a href="https://hits.sh/github.com/suprcutie/hits/"><img alt="Hits" src="https://hits.sh/github.com/suprcutie/hits.svg?label=fairy%20wings&extraCount=6049&color=fbb5d1&labelColor=d97c87"/></a>
+<a href="https://hits.sh/github.com/suprcutie/hits/"><img alt="Hits" src="https://hits.sh/github.com/suprcutie/hits.svg?label=luvly%20bots&extraCount=6814&color=90cbfd&labelColor=fd87b3"/></a>
 <p align="right">
 ˡ ᵒ ᵃ ᵈ ⁱ ⁿ ᵍ . . .
   
 ```
           ꒰ᩧ৯                     ◞ ྀི◟ ͜ ◞ ྀི◟ ͜ ◞ ྀི ⑅   " 𝐚 𝐝𝐞𝐥𝐢𝐜𝐚𝐭𝐞, 𝐥𝐨𝐯𝐞 𝐬𝐭𝐚𝐢𝐧𝐞𝐝 𝐬𝐨𝐮𝐥 . . . "  ృ                     𖹭 𑇓
                                     
-                            ◟𓈒ֺּׅ ꒰꛱ ͜ ꛱|꛱       ︵⏜ ୨ ྀི ᴄᴜᴘɪᴅ¹  𝐨𝐮  ᴄʏʀɪᴇ² ᴡᴇɴᴅʏ³ ‹𝟹  ྀི୧ ⏜︵ ྀི     ˚̣̣ ͜   ⑅♡⃘
+                            ◟𓈒ֺּׅ ꒰꛱ ͜ ꛱|꛱       ︵⏜ ୨ ྀི ʏᴠᴏɴɴᴇ¹  𝐨𝐮  ᴄᴜᴘɪᴅ² ᴄʏʀɪᴇ³ ‹𝟹  ྀི୧ ⏜︵ ྀི     ˚̣̣ ͜   ⑅♡⃘
                                           ꪆৎ   18 yrs   ⏖   𝟏.𝟐𝟒.𝟎𝟖 ⠀⨾   ns yume . . .  ࿐
                                           ꒰ྀི     ᴘʜᴀɪɴᴏɴ 。 sᴀɴᴊɪ  =͟͟͞ 。 ᴄᴀʟᴇʙ yume    ഒ໒꒱𓈒ׅ
-                                             layout credits to @abudasima on tumblr !!
 
           ꒰ᩧ৯                         ༏ིྀ♡ ໋꒱꒱⠀.  .   " 𝐅𝐢𝐧𝐜𝐡é 𝐜'è 𝐯𝐢𝐭𝐚 𝐜'è 𝐬𝐩𝐞𝐫𝐚𝐧𝐳𝐚 "     ◟ ͜͝ ᐩ                        𖹭 𑇓
 ```
@@ -41,11 +36,11 @@ let me know if u want to be added / removed !! :D
 </details>
 
 <p align="center">
-<img src="https://files.catbox.moe/khyhqf.jpg" alt="Gif"width="700" height="300">
+<img src="https://litter.catbox.moe/jsprd7ejyyz1d9bp.png" alt="Gif"width="900" height="300">
 
 <p align="right">
-<img src="https://files.catbox.moe/07ruwm.jpg" alt="Image"width="600" height="400">
+<img src="https://litter.catbox.moe/hyuggzvffu9yp689.gif" alt="Image"width="600" height="400">
 
 
 <p align="center">
-<img src="https://files.catbox.moe/o1o2va.png" alt="Header"width="10000" height="500">
+<img src="https://litter.catbox.moe/z3gj55rl8hhnytdn.png" alt="Header"width="10000" height="500">
