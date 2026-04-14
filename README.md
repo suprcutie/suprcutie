@@ -1,9 +1,9 @@
 <p align="center">
-<img src="https://litter.catbox.moe/z3gj55rl8hhnytdn.png" alt="Header"width="10000" height="500">
+<img src="https://litter.catbox.moe/ojlorl064jmdcptn.png" alt="Header"width="10000" height="500">
 <p align="center">
-<img src="https://litter.catbox.moe/urj1cu6n865b58hd.gif" alt="Gif"width="500" height="400">
+<img src="https://litter.catbox.moe/lxg8ztmbj709mqkw.gif" alt="Gif"width="500" height="400">
 <p align="center">
-<img src="https://litter.catbox.moe/jsprd7ejyyz1d9bp.png" alt="Gif"width="900" height="300">
+<img src="https://litter.catbox.moe/xfepjjipjxpl27up.png" alt="Gif"width="900" height="300">
 <p align="left">
 <a href="https://hits.sh/github.com/suprcutie/hits/"><img alt="Hits" src="https://hits.sh/github.com/suprcutie/hits.svg?label=luvly%20bots&extraCount=6814&color=90cbfd&labelColor=fd87b3"/></a>
 <p align="right">
@@ -36,11 +36,11 @@ let me know if u want to be added / removed !! :D
 </details>
 
 <p align="center">
-<img src="https://litter.catbox.moe/jsprd7ejyyz1d9bp.png" alt="Gif"width="900" height="300">
+<img src="https://litter.catbox.moe/xfepjjipjxpl27up.png" alt="Gif"width="900" height="300">
 
 <p align="right">
-<img src="https://litter.catbox.moe/hyuggzvffu9yp689.gif" alt="Image"width="600" height="400">
+<img src="https://litter.catbox.moe/hblwey9f9b1312u8.gif" alt="Image"width="600" height="400">
 
 
 <p align="center">
-<img src="https://litter.catbox.moe/z3gj55rl8hhnytdn.png" alt="Header"width="10000" height="500">
+<img src="https://litter.catbox.moe/ojlorl064jmdcptn.png" alt="Header"width="10000" height="500">
