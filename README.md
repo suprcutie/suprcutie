@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://files.catbox.moe/gr2tpg.gif" alt="Header"width="10000" height="150">
+<img src="https://files.catbox.moe/gr2tpg.gif" alt="Header"width="1000" height="60">
 <p align="center">
 <img src="https://files.catbox.moe/9gv43p.gif" alt="Gif"width="500" height="400">
 <p align="center">
@@ -43,4 +43,4 @@ let me know if u want to be added / removed !! :D
 
 
 <p align="center">
-<img src="https://files.catbox.moe/gr2tpg.gif" alt="Header"width="10000" height="150">
+<img src="https://files.catbox.moe/gr2tpg.gif" alt="Header"width="1000" height="60">
