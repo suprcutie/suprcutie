@@ -1,18 +1,18 @@
 <p align="center">
-<img src="https://files.catbox.moe/gr2tpg.gif" alt="Header"width="1000" height="60">
+<img src="https://files.catbox.moe/vkdq5z.jpg" alt="Header"width="1000" height="80">
 <p align="center">
-<img src="https://files.catbox.moe/9gv43p.gif" alt="Gif"width="500" height="400">
+<img src="https://files.catbox.moe/q7q1ps.png" alt="Gif"width="500" height="470">
 <p align="center">
-<img src="https://files.catbox.moe/qbqj81.png" alt="Gif"width="1000" height="50">
+<img src="https://litter.catbox.moe/k5gq8ni20oqeb4p3.jpg" alt="Gif"width="500" height="30">
 <p align="left">
-<a href="https://hits.sh/github.com/suprcutie/hits/"><img alt="Hits" src="https://hits.sh/github.com/suprcutie/hits.svg?label=luvly%20bots&extraCount=6814&color=90cbfd&labelColor=fd87b3"/></a>
+<a href="https://hits.sh/github.com/suprcutie/hits/"><img alt="Hits" src="https://hits.sh/github.com/suprcutie/hits.svg?label=%E2%9F%A1&extraCount=8699&color=ef3e67&labelColor=ffa7bc"/></a>
 <p align="right">
 ˡ ᵒ ᵃ ᵈ ⁱ ⁿ ᵍ . . .
   
 ```
           ꒰ᩧ৯                     ◞ ྀི◟ ͜ ◞ ྀི◟ ͜ ◞ ྀི ⑅   " 𝐚 𝐝𝐞𝐥𝐢𝐜𝐚𝐭𝐞, 𝐥𝐨𝐯𝐞 𝐬𝐭𝐚𝐢𝐧𝐞𝐝 𝐬𝐨𝐮𝐥 . . . "  ృ                     𖹭 𑇓
                                     
-                            ◟𓈒ֺּׅ ꒰꛱ ͜ ꛱|꛱       ︵⏜ ୨ ྀི ʏᴠᴏɴɴᴇ¹  𝐨𝐮  ᴄᴜᴘɪᴅ² ᴄʏʀɪᴇ³ ‹𝟹  ྀི୧ ⏜︵ ྀི     ˚̣̣ ͜   ⑅♡⃘
+                            ◟𓈒ֺּׅ ꒰꛱ ͜ ꛱|꛱       ︵⏜ ୨ ྀི ᴇᴠᴀ¹  𝐨𝐮  ᴄᴜᴘɪᴅ² ᴄʏʀɪᴇ³ ‹𝟹  ྀི୧ ⏜︵ ྀི     ˚̣̣ ͜   ⑅♡⃘
                                           ꪆৎ   18 yrs   ⏖   𝟏.𝟐𝟒.𝟎𝟖 ⠀⨾   ns yume . . .  ࿐
                                           ꒰ྀི     ᴘʜᴀɪɴᴏɴ 。 sᴀɴᴊɪ  =͟͟͞ 。 ᴄᴀʟᴇʙ yume    ഒ໒꒱𓈒ׅ
 
@@ -36,11 +36,11 @@ let me know if u want to be added / removed !! :D
 </details>
 
 <p align="center">
-<img src="https://files.catbox.moe/qbqj81.png" alt="Gif"width="1000" height="50">
+<img src="https://litter.catbox.moe/yi2fnk.png" alt="Gif"width="500" height="90">
 
 <p align="right">
-<img src="https://files.catbox.moe/8us9z6.gif" alt="Image"width="600" height="300">
+<img src="https://litter.catbox.moe/id5zod.jpg" alt="Image"width="600" height="300">
 
 
 <p align="center">
-<img src="https://files.catbox.moe/gr2tpg.gif" alt="Header"width="1000" height="60">
+<img src="https://files.catbox.moe/vkdq5z.jpg" alt="Header"width="1000" height="80">
