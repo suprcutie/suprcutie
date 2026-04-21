@@ -39,7 +39,7 @@ let me know if u want to be added / removed !! :D
 <img src="https://litter.catbox.moe/yi2fnk.png" alt="Gif"width="500" height="90">
 
 <p align="right">
-<img src="https://litter.catbox.moe/id5zod.jpg" alt="Image"width="600" height="300">
+<img src="https://litter.catbox.moe/id5zod.jpg" alt="Image"width="600" height="200">
 
 
 <p align="center">
