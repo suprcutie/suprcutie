@@ -1,7 +1,7 @@
 <p align="center">
 <img src="https://files.catbox.moe/vkdq5z.jpg" alt="Header"width="1000" height="80">
 <p align="center">
-<img src="https://files.catbox.moe/q7q1ps.png" alt="Gif"width="500" height="470">
+<img src="https://files.catbox.moe/q7q1ps.png" alt="Gif"width="500" height="490">
 <p align="center">
 <img src="https://litter.catbox.moe/6yctj0.jpg" alt="Gif"width="600" height="25">
 <p align="left">
