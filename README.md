@@ -3,7 +3,7 @@
 <p align="center">
 <img src="https://files.catbox.moe/q7q1ps.png" alt="Gif"width="500" height="470">
 <p align="center">
-<img src="https://litter.catbox.moe/k5gq8ni20oqeb4p3.jpg" alt="Gif"width="500" height="30">
+<img src="https://litter.catbox.moe/6yctj0.jpg" alt="Gif"width="600" height="25">
 <p align="left">
 <a href="https://hits.sh/github.com/suprcutie/hits/"><img alt="Hits" src="https://hits.sh/github.com/suprcutie/hits.svg?label=%E2%9F%A1&extraCount=8699&color=ef3e67&labelColor=ffa7bc"/></a>
 <p align="right">
