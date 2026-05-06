@@ -3,7 +3,7 @@
 <p align="center">
 <img src="https://files.catbox.moe/suuy8g.jpg" alt="Gif"width="700" height="380">
 <p align="center">
-<img src="https://files.catbox.moe/7umc8e.png" alt="Gif"width="400" height="150">
+<img src="https://files.catbox.moe/7umc8e.png" alt="Gif"width="600" height="160">
 <p align="left">
 <a href="https://hits.sh/github.com/suprcutie/hits/"><img alt="Hits" src="https://hits.sh/github.com/suprcutie/hits.svg?label=%E2%8C%9B%EF%B8%8E&extraCount=8888&color=f0cd7c&labelColor=662717"/></a>
 <p align="right">
@@ -37,8 +37,6 @@ xᴛʀᴀ xᴛʀᴀ ʀᴇᴀᴅ ᴀʟʟ ᴀʙᴏᴜᴛ ɪᴛ . . .
 let me know if u want to be added / removed !! :D
 </details>
 
-<p align="center">
-<img src="https://files.catbox.moe/cyd3w4.png" alt="Gif"width="200" height="180">
 
 <p align="right">
 <img src="https://files.catbox.moe/91iimi.png" alt="Image"width="800" height="250">
