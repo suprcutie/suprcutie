@@ -27,7 +27,7 @@ xᴛʀᴀ xᴛʀᴀ ʀᴇᴀᴅ ᴀʟʟ ᴀʙᴏᴜᴛ ɪᴛ . . .
 <details>
 <summary>♡ LINKS ♡</summary>
 <br>
-<a href="https://rentry.co/cupidsadoration" target="_blank">rentry</a>  <a href="https://angelicdelusion.atabook.org/" target="_blank">atabook</a>  
+<a href="https://rentry.co/cupidsadoration" target="_blank">rentry</a>  <a href="https://angelicdelusion.atabook.org/" target="_blank">atabook</a>  <a href="https://docs.google.com/document/d/1NUqF7yNQew0gaeoyo0qcVH-oEhFF9lrtcXmhU76wqno/edit?usp=sharing" target="_blank">read me!!</a>
 </details>
 
 <details>
