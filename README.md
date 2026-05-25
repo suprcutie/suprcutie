@@ -1,9 +1,9 @@
 <p align="center">
-<img src="https://files.catbox.moe/c0f0a2.png" alt="Header"width="900" height="200">
+<img src="https://files.catbox.moe/230crg.png" alt="Header"width="900" height="150">
 <p align="center">
-<img src="https://files.catbox.moe/vptt37.jpg" alt="Gif"width="700" height="380">
+<img src="https://files.catbox.moe/kqgdd3.png" alt="Gif"width="700" height="230">
 <p align="center">
-<img src="https://files.catbox.moe/qprvwo.webp" alt="Gif"width="700" height="70">
+<img src="https://files.catbox.moe/zjhxm5.gif" alt="Gif"width="500" height="20">
 <p align="left">
 <a href="https://hits.sh/github.com/suprcutie/hits/"><img alt="Hits" src="https://hits.sh/github.com/suprcutie/hits.svg?label=%E2%89%A7%E2%89%A6&extraCount=8999&color=f5c6d4&labelColor=f5eaed"/></a>
 <p align="right">
@@ -16,7 +16,7 @@
                                           ꪆৎ   18 yrs   ⏖   𝟏.𝟐𝟒.𝟎𝟖 ⠀⨾   ns yume . . .  ࿐
                                           ꒰ྀི     ᴘʜᴀɪɴᴏɴ 。 sᴀɴᴊɪ  =͟͟͞ 。 ᴄᴀʟᴇʙ yume    ഒ໒꒱𓈒ׅ
 
-                                                   layout creds to akibwun on tumblr
+                                                layout creds to kirokumiku on tumblr
 
           ꒰ᩧ৯                         ༏ིྀ♡ ໋꒱꒱⠀.  .   " 𝐅𝐢𝐧𝐜𝐡é 𝐜'è 𝐯𝐢𝐭𝐚 𝐜'è 𝐬𝐩𝐞𝐫𝐚𝐧𝐳𝐚 "     ◟ ͜͝ ᐩ                        𖹭 𑇓
 ```
@@ -39,8 +39,8 @@ let me know if u want to be added / removed !! :D
 
 
 <p align="right">
-<img src="https://files.catbox.moe/pmhtl3.png" alt="Image"width="300" height="250">
+<img src="https://files.catbox.moe/eih2v4.png" alt="Image"width="300" height="300">
 
 
 <p align="center">
-<img src="https://files.catbox.moe/dofd1r.png" alt="Header"width="900" height="200">
+<img src="https://files.catbox.moe/zcspzz.png" alt="Header"width="900" height="150">
